@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Taffyy123
-- 👀 I’m interested in learning and
+- 👀 I’m interested in learning and making money
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate whenever I can really can
 - 📫 How to reach me 
